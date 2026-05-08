@@ -1,4 +1,4 @@
-
+pull lucky blocks Scripts updated is the best pull lucky blocks Script, featuring fly and auto-collect. Safe and powerful for all your needs.
 
 
 
